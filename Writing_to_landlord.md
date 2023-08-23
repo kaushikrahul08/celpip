@@ -1,4 +1,4 @@
-# celpip
+# A request letter to landlord who has advertised the apartment online at <website>
 
 Dear Johnson, 
 
