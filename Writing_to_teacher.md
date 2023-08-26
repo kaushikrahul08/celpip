@@ -1,4 +1,4 @@
-rYou recently graduated from university. You have just been interviewed for a new job. The interviewers liked you and they are interested in hiring you. 
+You recently graduated from university. You have just been interviewed for a new job. The interviewers liked you and they are interested in hiring you. 
 First, however, you need a letter of reference from a teacher at your university that explains your strengths.
 * remind the teacher about who you are
 * provide information about your interview
