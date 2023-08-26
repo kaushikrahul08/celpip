@@ -19,4 +19,5 @@ further with my employment. Also, I would appreciate it if you could mention som
 Your kind cooperation in this matter is highly appreciated. However, an open line of communication from your end would greatly help out in this matter.
 
 Yours sincerely,
+
 Rahul Sharma 
