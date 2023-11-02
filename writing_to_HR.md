@@ -15,4 +15,5 @@ racial comments.
 Thank you for your attention to this matter, and I appreciate your commitment to maintaining a safe and inclusive work environment.
 
 Yours sincerely,
+
 Rahul Sharma  
