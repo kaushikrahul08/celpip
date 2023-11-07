@@ -10,4 +10,5 @@ In order to address this issue, I would like to suggest a few steps. First, focu
 I hope you will consider my advice for your account, and I look forward to seeing positive changes in the store's operations.
 
 Yours sincerely, 
+
 Rahul Sharma
