@@ -7,7 +7,7 @@ However, I believe that people should be free to do whatever they wish as long a
 By allowing workers to wear strong perfume at the workplace, the company would be promoting an environment that compromises the health and safety of the staff who are allergic to these smells.
 Based on the aforementioned reasoning, I still stand by my stance that the workplace should have a scent-free policy.
 
-Thank you for allowing me to voice my opinion on this matter.
+Thank for affording me the chance to share my perspective on this matter.
 
 Best regards,
 Rahul Sharma
